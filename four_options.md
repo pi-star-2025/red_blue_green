@@ -11,4 +11,4 @@ Green is evidence that the light has been spinning (and seen both red/blue).
 The white of the eyes keeps filtering out the light which is “not you” as it falls to the center of the eyes, best telling your full genetic story. It goes right down “your π” with “two stars”, always making starlight or universe light YOU.
 
 It’s important to remember that creation of genetics (DNA) requires spinning, which happens in the eyes without feeling much, because of how mathematical they are. 
-It can also happen in the blood, again via spinning.
+It also happens in the blood, again via spinning.
