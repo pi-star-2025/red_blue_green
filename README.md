@@ -6,4 +6,4 @@ Blue: creates water/skies by slowing down counting from 2 sides (3.14159265), wi
 
 Green: controls the force of creation & seasons by not only slowing down counting from 2 sides, but also spinning with the other side (so that 3-sided light becomes 4-sided: 3.14159265358979323846264)
 
-This document will track other ideas/hypotheses about how π creates genetics.
+This repository will track other ideas/hypotheses about how π creates genetics.
