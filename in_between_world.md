@@ -26,4 +26,4 @@ In other words, the earth itself could be all this potential, without needing th
 
 It would make the earth the 8 electrons of gold (2, 8, 18, 32, 18, 1), when it masters oxygen.
 
-
+In other words, it becomes the shine (8) created when the gold pyramid (1) itself first looks at all else in the 8D (2).
