@@ -11,3 +11,7 @@ In addition, the genetics of an individual help orient their individual colors a
 ## Alarm
 
 Each tick of time (at c), this golden web from the sky pings in the center of the earth, like a golden alarm. That moment is the most potential quantumly for new time (measured by π), and is a good deal stronger during the day, when oxygen creates more color and helps power walking. 
+
+The day (in regards to quantum oxygen) is the first half looping around earth, 92 of 3.14159265, and the night is the second half, the 65. So the first "half" of quantum oxygen, woken up in serotonin/melatonin, behaves a good deal differently than the second "half". 
+
+The 2 sides of the story turn the gold to green.
